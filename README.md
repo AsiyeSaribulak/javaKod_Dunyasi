@@ -1,1 +1,0 @@
-# potansiyel-Sekizli-spork
